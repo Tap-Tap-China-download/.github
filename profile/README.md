@@ -23,6 +23,9 @@
 
 
 ## Tap Tap China Platform Advantages for MLBB china server
+<div align="center">
+  <img src="https://gamecardsdirect.com/content/image/01_nieuwsitems/05-blog-2023/Mobile%20Legends/blog-2023-mobile-legends-header.png" width="500" alt="Tap Tap China Platform Advantages">
+</div>
 
 ### Tap Tap China's Unique Gaming Experience
 - **Early Access**: Tap Tap China brings Honor of Kings: World 6 months before global release
